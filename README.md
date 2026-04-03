@@ -7,5 +7,5 @@
 * Future Job: IT Manager
 * Favorite Author: The Brontë Sisters
 * Favorite Cuisine: Italian
-* Gold or Silver: Silver
+* Gold or Silver: Silver 
 Just a couple of things about me :)
